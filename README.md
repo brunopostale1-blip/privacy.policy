@@ -95,4 +95,4 @@ Recomendamos que o usuário revise esta página regularmente.
 
 📧 Contato
 
-Em caso de dúvidas ou solicitações relacionadas à privacidade:
+Em caso de dúvidas ou solicitações relacionadas à privacidade:  contato_rotininha@outlook.com
